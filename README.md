@@ -1,1 +1,1 @@
-## 👋Hi there, I am Krux75!
+## 👋 Hi there, I am Jake "Krux75" Axel!
